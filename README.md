@@ -1,0 +1,1 @@
+# ozenvitta-funciona-original-valor
